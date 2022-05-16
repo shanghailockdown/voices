@@ -4,6 +4,9 @@
 [hemuch｜一个上海居民的新冠记录：“社会疫情”是否可以减减压？](https://chinadigitaltimes.net/chinese/678585.html)
 
 ### 2022年4月
+
+[上海求救404？继续求救，疯狂求救！](https://www.wenxuecity.com/news/2022/04/09/11474251.html)
+
 [辣味酱｜一位上海外卖小哥之死](https://chinadigitaltimes.net/chinese/680333.html)
 
 [民国咖啡厅｜蔡慎坤：为什么要折腾上海？](https://chinadigitaltimes.net/chinese/680329.html)
