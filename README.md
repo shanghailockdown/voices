@@ -5,6 +5,8 @@
 
 ### 2022年4月
 
+[在上海，做团长有多难？](https://finance.sina.com.cn/tech/csj/2022-04-14/doc-imcwiwst1851858.shtml)
+
 [上海求救404？继续求救，疯狂求救！](https://www.wenxuecity.com/news/2022/04/09/11474251.html)
 
 [辣味酱｜一位上海外卖小哥之死](https://chinadigitaltimes.net/chinese/680333.html)
