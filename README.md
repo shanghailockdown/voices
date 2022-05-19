@@ -13,10 +13,13 @@
 
 [我会永远在你身后｜同济大学的学生们不忍了！](https://chinadigitaltimes.net/chinese/680405.html)
 
+[封城下的上海|纽约时报](https://www.nytimes.com/zh/interactive/2022/05/04/world/asia/shanghai-lockdown-chinese.html)
+
 ### 2022年5月
+[Shanghai lockdown: The hard life of a homeless deliveryman|BBC](https://www.bbc.com/news/world-asia-china-61270253)
+
 [上海日记——上海封城中的个体经历与记忆](https://chinadigitaltimes.net/chinese/680779.html)
 
 [童之伟：对上海新冠防疫两措施的法律意见](https://chinadigitaltimes.net/chinese/680943.html)
 
 [艰难的自救：上海封城中的居民互助与自组织](https://chinadigitaltimes.net/chinese/681293.html)
-
