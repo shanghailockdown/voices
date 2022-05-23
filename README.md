@@ -5,7 +5,7 @@
 
 ### 2022年4月
 
-[上海疫情：一家出現感染的老年護理醫院和掙扎中的醫療系統 | BBC](https://www.bbc.com/zhongwen/trad/chinese-news-60965763)
+[BBC | 上海疫情：一家出現感染的老年護理醫院和掙扎中的醫療系統](https://www.bbc.com/zhongwen/trad/chinese-news-60965763)
 
 [在上海，做团长有多难？](https://finance.sina.com.cn/tech/csj/2022-04-14/doc-imcwiwst1851858.shtml)
 
@@ -17,7 +17,7 @@
 
 [我会永远在你身后｜同济大学的学生们不忍了！](https://chinadigitaltimes.net/chinese/680405.html)
 
-[封城下的上海|纽约时报](https://www.nytimes.com/zh/interactive/2022/05/04/world/asia/shanghai-lockdown-chinese.html)
+[纽约时报 | 封城下的上海](https://www.nytimes.com/zh/interactive/2022/05/04/world/asia/shanghai-lockdown-chinese.html)
 
 ### 2022年5月
 [Shanghai lockdown: The hard life of a homeless deliveryman|BBC](https://www.bbc.com/news/world-asia-china-61270253)
