@@ -5,6 +5,8 @@
 
 ### 2022年4月
 
+[上海疫情：一家出現感染的老年護理醫院和掙扎中的醫療系統 | BBC](https://www.bbc.com/zhongwen/trad/chinese-news-60965763)
+
 [在上海，做团长有多难？](https://finance.sina.com.cn/tech/csj/2022-04-14/doc-imcwiwst1851858.shtml)
 
 [上海求救404？继续求救，疯狂求救！](https://www.wenxuecity.com/news/2022/04/09/11474251.html)
